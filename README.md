@@ -1,0 +1,1 @@
+# Jugal_Dictonary
